@@ -8,7 +8,6 @@ Use our issue tracker to post any suggestions you have!
 =========
 Join our public skype call to discuss with other players!
 
-(Click Skype link at bottom of post!)
+<a href="http://gld.bz/s/revive.php">Click Here to Join Skype Chat!</a>
 
-https://gldesert.com/forums/showthread.php?9811-It-s-time-to-get-GLD-rolling-again!
 
